@@ -1,1 +1,2 @@
-ban
+megollek kocsis aron
+
